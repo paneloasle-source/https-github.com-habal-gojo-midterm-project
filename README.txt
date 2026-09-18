@@ -1,4 +1,4 @@
-SAFE & EQUAL — Gender & Society Midterm Project
+SAFE & EQUAL 
 
 Central issue:
 Gender-based violence and sexual harassment in the Philippines.
